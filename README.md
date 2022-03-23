@@ -1,3 +1,9 @@
-# Welcome to my private repository! 
+`As you can see it is currently work in progress but it will improve overtime :)`  
 
-As you can see it is currently work in progress but it will improve overtime :)  
+
+# Welcome to my profile!
+Hi! I'm Željko👋- researcher at the project DLASIUT, currently chasing a PhD student at the Faculty of Transport and Traffic Sciences. 
+
+## Get in touch
+LinkedIn 
+Discussions
